@@ -1,2 +1,2 @@
-# es-theme-CRTBlast
- 
+# es-theme-crtblast
+NOT AUTHORISED TO BE A PART OF ANY LOADED IMAGE RELEASE
